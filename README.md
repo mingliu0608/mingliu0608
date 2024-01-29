@@ -2,5 +2,5 @@
 
 - 🔭 I’m currently working on my master degree.
 - 🌱 I’m currently learning Rf, web,fun techs.
-- ⚡ Fun fact: you law i laugh.
+- ⚡ Fun fact: you law I laugh.
 
